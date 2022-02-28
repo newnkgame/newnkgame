@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @newnkgame
+- 👀 I’m interested in ... hating school
+- 🌱 I’m currently learning ... html and js
+- 💞️ I’m looking to collaborate on ... websites
+- 📫 How to reach me ... pıʞ ןɐɥʍɹɐN#0001
